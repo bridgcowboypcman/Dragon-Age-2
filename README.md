@@ -226,4 +226,4 @@ Dragon Age 2 is offered as a full free version with all features and updates inc
 Embark on your adventure today! Download Dragon Age 2 for Windows and experience RPG gaming like never before!
 
 ---
-**Last updated:** 2026-10-11 08:29:05 UTC
+**Last updated:** 2026-10-11 15:26:20 UTC
